@@ -1,7 +1,7 @@
 ![banner](https://cdn.phototourl.com/free/2026-06-30-151d0bad-f5eb-4f9c-87cb-1382a57fb1e4.jpg)
 
 
-                                                    MY CUTEST DUO>////<
+                                                   MY CUTEST DUO >////<
 ![a2](https://github.com/pniiz0/pniiz0/blob/fb59df25e0ca461e6760fa03b704c4caea87ce5b/z7993865491019_afb01d1d63490aae538e0f1a2ea217e2.jpg)
 <!--
 **pniiz0/pniiz0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
