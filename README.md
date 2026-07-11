@@ -1,4 +1,4 @@
-![banner](https://cdn.phototourl.com/free/2026-06-30-151d0bad-f5eb-4f9c-87cb-1382a57fb1e4.jpg)
+![banner](https://github.com/pniiz0/pniiz0/blob/137ec70bdc2f1a072b2381e3308f90d97ea9aa5d/retouch_2026070702303640.jpg)
 
 
                                                    MY CUTEST DUO >////<
