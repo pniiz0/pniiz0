@@ -1,5 +1,5 @@
 <p align="center"><img src=https://camo.githubusercontent.com/1623244ba4048b36d42d788ab60205638517c0eba0bdd0300d2262df0eb2e8a7/68747470733a2f2f66696c652e67617264656e2f616b4b6255395f6c38684b6e6c5449582f74756d626c725f64623463336661663066643630363234636633323631666134326565323833375f64653232363138375f3430302e77656270>
   
    ![banner](https://github.com/pniiz0/pniiz0/blob/137ec70bdc2f1a072b2381e3308f90d97ea9aa5d/retouch_2026070702303640.jpg)
-<p align="center"><img src="https://assets.pinterest.com/ext/embed.html?id=1022176446644281440" height="295" width="345" frameborder="0" scrolling="no">
- 
+   
+<p align="center"><img src=https://cdn.phototourl.com/free/2026-07-24-784d14b3-0138-44fc-b5b0-caf7d5335466.gif>
